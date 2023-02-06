@@ -5,3 +5,5 @@
 2. 耳聆网：[耳聆网](https://www.ear0.com/sound)
 3. 豆丁素材：[豆丁素材](https://v.docin.com/l-3-2-0-0-0-1.html)
 4. 办公资源网：[办公资源网](https://www.bangongziyuan.com/music/)
+5. 爱给网：[爱给网](https://www.aigei.com/)
+6. 淘声网：[淘声网](https://www.tosound.com/)
